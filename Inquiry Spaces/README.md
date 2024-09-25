@@ -13,8 +13,8 @@ Some influences:  </br>
 
 Some writings that inspire my thoughts </br>
 “His (Ghassan Kanafani) “work” was survival, both his own and that of his people, the Palestinians”. 
-</br>
+</br></br>
 “Borders and barriers, which enclose us within the safety of familiar territory, can also become prisons, and are often defended beyond reason or necessity. Exiles cross borders, break barriers of thought and experience.”
-</br>
+</br></br>
 “Much of the exile’s life is taken up with compensating for disorienting loss by creating a new world to rule… Seeing “the entire world as a foreign land” makes possible originality of vision.”
 </br>
