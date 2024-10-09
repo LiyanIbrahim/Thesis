@@ -18,4 +18,9 @@ Another experiment that was suggested to me is to gather different media forms d
 3. Alfredo Jaar
 4. Tarek Al-Ghoussien
 5. Rabih Mroué
-6. Walid Raad 
+6. Walid Raad
+
+</br> Some inspo pics </br> 
+![IMG_6615](https://github.com/user-attachments/assets/9618a43f-1228-4e1c-ac75-4b2e408c131d)
+![IMG_6613](https://github.com/user-attachments/assets/63c41063-6b31-455a-94f3-950eb722d03c)
+
