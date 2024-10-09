@@ -11,3 +11,11 @@ After having multiple conversations and workshopping these thoughts, I think I w
 <b>Experiments: </b></br>
 After figuring out the general direction of the content of my thesis. I’m starting to think about and this includes the experiments I want to plan, the form and generally what I want my thesis to look like. My initial thoughts is that I want it to have some sort of physical form and so I set up sometime this week to talk with performing artists and workshop what diasporic experiences can look like when there is a physical element of movement involved. 
 Another experiment that was suggested to me is to gather different media forms daily and put them in folders in order to create something with them (short movie etc etc) and get people’s reaction to the different combinations of form and content. 
+
+</b> People/places/things/conversations that inspire me: </br> 
+1. Theo Ellin Ballew
+2. Ali Santana
+3. Alfredo Jaar
+4. Tarek Al-Ghoussien
+5. Rabih Mroué
+6. Walid Raad 
