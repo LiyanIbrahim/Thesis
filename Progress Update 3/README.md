@@ -11,3 +11,5 @@ I’m still fine tuning both but will update the blog when I’m done.
 </br></br>
 These are inspirations from the book that I was going off of when replicating
 
+![IMG_7721](https://github.com/user-attachments/assets/abe46c56-6ac3-4618-a402-b28c203671ef)
+![IMG_7720](https://github.com/user-attachments/assets/74a59b36-b578-4351-bab3-489f1c654598)
