@@ -1,6 +1,6 @@
 I found prototyping for this week a little challenging but I think it was mainly because I really wanted my prototype to be some sort of movie/moving image/ video. 
 I initially started off with the idea of consumption. </br></br>
-<b> “The more you eat something, the more it will run out. It will eventually finish”<b> </br>
+<b> “The more you eat something, the more it will run out. It will eventually finish”</b> </br></br>
 I’m intrigued in using this metaphor in my statement as an abstract, maybe subtle way to allude to ethnic cleansing, the more you kill Palestianins, the more they run out. You will eventually erase Palestianians. I wanted to explore what I can do and how I can make something out of it that keeps the metaphor but also maybe bleeds into the aspects of survivors guilt and helplessness during war. </br></br>
 
 This week, I was also given Lana Del Rey’s Violet Bent Backwards Over The Grass book which is a poetry book but I thought the structure of it was interesting because it has poems on one side and images (i think taken on film) on the other side and that made me think about the association of different forms of writing with images and visual inspiration. 
