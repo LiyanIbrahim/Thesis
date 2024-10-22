@@ -7,7 +7,7 @@ This week, I was also given Lana Del Rey’s Violet Bent Backwards Over The Gras
 </br></br>
 So for this update, I’ve been working on setting up both. Some sort of video/moving image even if it’s a compilation of photos with some audio that I think maybe could be more head on. And also compiling images and their associations with writing, mine as well as others that has inspired me and informed my experience as a Palestinian in diaspora. 
 </br></br>
-I’m still fine tuning both but will update the blog when I’m done. 
+[I’m still fine tuning both but will update the blog when I’m done. ](https://docs.google.com/document/d/1Pkcs-udMGpd3SggTKhHpItFxk1x2r7Uwry9AmiKahqk/edit?tab=t.0)
 </br></br>
 These are inspirations from the book that I was going off of when replicating
 
