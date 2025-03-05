@@ -20,3 +20,6 @@ For the projection mapping vs flashlight: </br>
 Maybe there is a way to include both in that one piece or move the projection element to the second piece. 
 The second piece is a little more up in the air but I do what it to have a cocoon like structure and I’m meeting with phil to discuss my options here 
 
+![IMG_0868 2](https://github.com/user-attachments/assets/8c65b01f-7c5b-41b4-a3cb-fa45217dedf2)
+![IMG_0740 2](https://github.com/user-attachments/assets/4c2dd18b-1024-42a7-8a9f-5e8f8ed5b807)
+
