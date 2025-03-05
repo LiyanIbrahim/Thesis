@@ -7,7 +7,7 @@ For the projection mapping vs flashlight: </br>
 
   <ol>Flashlight is less distracting than shadows</ol>
 <ol> Flashlight to guide in your own pace</ol>
-<o> Feels like a secret corner / feels more intimate when you have light over something </o>
+<ol> Feels like a secret corner / feels more intimate when you have light over something </ol>
 </li>
 <li> Reasons I want projection mapping:
   <ol>Feels more interactive and more engaging  </ol>
