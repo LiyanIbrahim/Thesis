@@ -3,11 +3,12 @@ I got a bunch of useful feedback during user-testing but now my main dilemma is 
 To kick off my production, I identified what I need to do for each of my two pieces but I started working on one of the pieces that I used in the user testing. I categorize in, simple words or sentences, what I want my thesis to be about/the feelings I want to provoke. After that, I put down what category each of these writings falls under. After doing that I decided to do more writing and I’m still trying to decide which ones to go with. For hardware/physical production of it, I got feedback that it would feel more personal if the notes were handwritten but I don’t know how I feel about that because I feel like it would feel incomplete for me. I also wanted it to have a typewriter feel to my writings and handwriting would not give that. 
 </br></br>
 For the projection mapping vs flashlight: </br>
-Reasons people liked flashlight: </br>
-<li> 
+<li> Reasons people liked flashlight: </br>
+
   <ol>Flashlight is less distracting than shadows</ol>
 <ol> Flashlight to guide in your own pace</ol>
-<o> Feels like a secret corner / feels more intimate when you have light over something </o></li>
+<o> Feels like a secret corner / feels more intimate when you have light over something </o>
+</li>
 <li> Reasons I want projection mapping:
   <ol>Feels more interactive and more engaging  </ol>
   <o>Add an extra element to the storytelling   </o>
