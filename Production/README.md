@@ -11,9 +11,9 @@ For the projection mapping vs flashlight: </br>
 </li>
 <li> Reasons I want projection mapping:
   <ol>Feels more interactive and more engaging  </ol>
-  <o>Add an extra element to the storytelling   </o>
-  <o>There is a graffiti stencil mural in the West Bank that is a girl flying with a balloon that is similar in style to what I wanted to make and so I was thinking of playing with that (In its original context, the artwork is thought to refer to the Palestinian right to freedom of movement)  
- </o>
+  <ol>Add an extra element to the storytelling   </ol>
+  <ol>There is a graffiti stencil mural in the West Bank that is a girl flying with a balloon that is similar in style to what I wanted to make and so I was thinking of playing with that (In its original context, the artwork is thought to refer to the Palestinian right to freedom of movement)  
+ </ol>
 </li>
 </br> 
 
